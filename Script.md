@@ -23,7 +23,11 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Jacob met the Unicorn King who granted him magic powers.
-The end.
+He asked the Unicorn King if he can grant powers to Mason as well.
+He told Jacob that there isn't a need for him and if he can prove that he needs Mason then he will grant him powers as well.
+Jacob explains that even with his powers, he doesn't know the first thing about animals and therefore needs Mason to help him understand them.
+The Unicorn King looks at Mason begrudgingly but still granted him powers. 
+Now, what will they do to get past this barrier.
 
 ## Cast
 
