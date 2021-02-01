@@ -22,6 +22,13 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
+After 10 minutes of investigation, a zookeeper comes out from behind the koala habitat.
+Jacob notices that he seems scared out of his mind so he goes over to talk to him. 
+What's your name? Jacob says in his "it's okay" voice.
+Mason.
+They hit it off and decide to make their way to the front of the zoo. 
+There's a barrier that their human selves can't get past.
+
 Jacob met the Unicorn King who granted him magic powers.
 The end.
 
@@ -31,3 +38,4 @@ The end.
 * Unicorn King: Alan
 * Friendly Koala: Adriana
 * Janitor: Mitchell
+* Zookeeprer: Mason
